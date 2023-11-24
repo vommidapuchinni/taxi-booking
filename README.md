@@ -5,19 +5,6 @@ ggdsdsghgmg
 hdshdhmhmj
 nxb cnb
 cdndsbcnadnc
-chdsbcbs
-cbnsdba
-ahsva
-asvban
-dbs cbasa
-csvasbv
-chsavcasb
-csavcsahv
-cABNbxbM
-abnBN
-fdbnenewn
-febvfewnvnew bfvbevbeww
-fcvewvewb  bewvbewb
-nhwabdnbdbbehj
-dbewjdwqbjwq
-dhwqbvhwqb\
+hdhhe
+dnb bnewd
+dnbqn
