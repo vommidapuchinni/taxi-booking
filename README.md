@@ -23,13 +23,3 @@ babdna
 csbca
 bc d nc d
 vcand nmas 
-vna a 
-nvsa vnmsa
-vna m
-va
-nbs b an
-cb dsansa
-sc asn
-  dccm mca
-  cnads c
-  csa
