@@ -18,10 +18,3 @@ snbsa
 nb cbdsbcad
 csnb can
 csc ns
-uYGASIYGaw
-csanba
-babdna
-csbca
-bc d nc d
-qdhasyygfwl
-vcand nmas 
